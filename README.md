@@ -2,11 +2,6 @@
 
 Can I Retire???
 
-**Date assigned:** Wednesday, September 28, 2021
-
-**Program due:** Wednesday, October 6, 2021, \[9:15AM Sect 02; 1:00PM
-Sect 01\]
-
 **Points:** 25
 
 **Goals:**
